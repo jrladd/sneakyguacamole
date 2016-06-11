@@ -9,7 +9,7 @@
 title: Sneaky Guacamole
 description: > # this means to ignore newlines until "baseurl:"
         Not yet... not yet... not yet... too late!
-baseurl: "" # the subpath of your site, e.g. /blog
+baseurl: "/sneakyguacamole" # the subpath of your site, e.g. /blog
 url: "http://yourdomain.com" # the base hostname & protocol for your site
 twitter_username: gingerdear
 github_username: jrladd 
