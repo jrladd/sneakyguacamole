@@ -1,0 +1,12 @@
+---
+layout: post
+title: Maple Bacon Biscuits
+date: '2015-09-23T15:02:05-05:00'
+tags:
+- bacon
+- maple syrup
+- biscuits
+- baked goodies
+tumblr_url: http://sneakyguacamole.tumblr.com/post/129729042070/maple-bacon-biscuits
+---
+I have a history with these biscuits. The first time I tried to make them, to bring them to an Easter party, I forgot the liquid agent. I know you’re wondering, how does one forget the buttermilk in a biscuit?! I was in a rush, and the maple syrup also adds liquid so I didn’t notice! Well, it came out like hard tack. EW. Therefore, I wanted to take another crack at these, and don’t you know, when you all all the ingredients, they’re quite delicious! Via The Smitten Kitchen Cookbook. 3 slices (about 3 oz or 85 grams) bacon¼ cup (60 ml) maple syrup1 ½ cups (190 grams) all-purpose flour2 teaspoons baking powder½ teaspoons baking soda½ teaspoon table saltApproximately 4 tablespoons (55 grams or ½ stick) unsalted butter, chilled, chopped into small chunks¼ cup (60 ml) buttermilkFry the bacon until it is crisp. Remove the bacon from the pan and drain it on a few stacked paper towels. Pour the bacon fat into a glass measuring cup so that you can see how much you have. (I usually end up with 2 tablespoons; note if you have more or less, so that you can adjust the butter quantity, as noted below.) Place your measuring cup in the freezer, and freeze until fat is solid.Chop the bacon into small bits, and place it in a small dish. Pour the maple syrup over the bacon and stir; then set the mixture aside.Remove the solidified bacon fat from the freezer. Preheat your oven to 425 degrees. Line a baking sheet with parchment paper. Mix the flour, baking powder, baking soda, and salt in a large bowl. Using a pastry blender or your fingertips, rub the chilled bacon fat and 4 tablespoons butter (the amount needed for 2 tablespoons bacon fat; adjust up for down if you ended up with less or more bacon fat) into the dry ingredients until mixture resembles coarse meal. Add the bacon-maple syrup mixture and the buttermilk, and blend together with a rubber spatula until it is evenly moistened. Knead just a couple times (as little as needed) to form the scraps into a dough. Pat out to 1-inch thickness on a well-floured surface, and cut into biscuits with a 2-inch cutter. Arrange the biscuits on the baking sheet, and bake for 12-14 minutes, until they are puffed and golden Serve warm.

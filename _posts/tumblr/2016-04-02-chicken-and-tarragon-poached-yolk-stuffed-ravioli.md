@@ -1,0 +1,14 @@
+---
+layout: post
+title: CHICKEN AND TARRAGON POACHED YOLK STUFFED RAVIOLI
+date: '2016-04-02T16:00:54-05:00'
+tags:
+- Pastas
+- chicken
+- tarragon
+- eggs
+- ricotta
+- marscapone
+tumblr_url: http://sneakyguacamole.tumblr.com/post/142138838362/chicken-and-tarragon-poached-yolk-stuffed-ravioli
+---
+I’ve always wanted to try to make yolk stuffed ravioli, and this was a nice first attempt. It’s one of those things that while time intensive, seems harder than it actually is. One note: I overcooked my ravioli because I was nervous, and the recipe said 5-6 minutes boiling. If you want a runny yolk, I would only boil your ravioli for 3 minutes tops, because you finish them in a saute pan later anyway. All the fillings are cooked, so you’re really just cooking your pasta, and fresh pasta usually only takes 2-3 minutes. Via Spook Fork Bacon.Makes 8Chicken and tarragon filling:8 ounces part skim ricotta2 ounces mascarpone, softened2 tablespoons grated Parmesan2/3 cup cooked and shredded chicken1 tablespoon minced tarragon1 charred ear of cornsalt and pepper to tasteRavioli:½ recipe pasta dough (I’ve left the original recipe’s pasta link here, but I use Marcella Hazan’s pasta recipe.]1 large egg plus 1 tablespoon water, beaten together8 large egg yolks½ cup (1 stick) unsalted buttersalt and pepper to tastegarnish: grated ParmesanPlace all filling ingredients into a mixing bowl and mix together until completely combined. Cover and refrigerate until ready to use.Lightly flour a clean surface and roll the pasta dough until 1/8” thick.Cut eight, 4”x 6” rectangles out of the dough and lightly brush each surface with the egg and water mixture (egg wash).Place about 3 tablespoons of filling onto 1 side of each pasta rectangle, leaving a 1/2” border.Create a small divot in the center of the filling and carefully place 1 yolk into each divot.Carefully fold the other side of the pasta rectangles over the yolk and filling and gently press the edges, making sure to get rid of any air bubbles.Using a large circle cutter, carefully cut the pasta squares into circles and firmly press down to seal.Fill a large pot with water and bring to a boil. Add a handful of salt to the water and add the raviolis. Boil for 5 to 6 minutes. [See my note about cooking time.]While the raviolis boil, melt the butter in a skillet, over medium heat. Continue to cook butter until it begins to brown and release a nutty aroma.Reduce the heat to medium-low and using a slotted spoon transfer the ravioli to the skillet with browned butter. Sauté raviolis for about 2 minutes. Season with salt and pepper.Transfer ravioli onto a platter and pour browned butter over the top. Finish with freshly grated Parmesan and serve immediately.*Not the prettiest method of cutting, but you make it work with the tools you have!

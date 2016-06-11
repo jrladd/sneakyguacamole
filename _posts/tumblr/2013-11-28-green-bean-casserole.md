@@ -1,0 +1,30 @@
+---
+layout: post
+title: Green Bean Casserole
+date: '2013-11-28T23:37:42-06:00'
+tags:
+- snacks/sides
+- green beans
+- onions
+- mushrooms
+tumblr_url: http://sneakyguacamole.tumblr.com/post/68437118394/green-bean-casserole
+---
+When I asked John what one dish really meant Thanksgiving for him, since neither of us could be with our families this year, he said green bean casserole. I was really picky growing up so I’d never really had green bean casserole or knew what it tasted like. But one thing I knew, I did not want to make it out of a mushroom soup can. So therefore, I made this one from scratch with fresh ingredients! However, I did cheat with the crispy onions. While my recipe told me how to make the onions, I figured it wasn’t quite worth it with all the other things I was making, so thanks to Trader Joe’s for nice quality crispy onions.
+This recipe is brought to you by Alton Brown, Smitten Kitchen, and our love of crunchy, fresh green beans. 
+
+
+Mushroom Sauce
+3 tablespoons butter12 ounces mushrooms, thinly sliced or coarsely choppedFew gratings fresh nutmeg (optional)Freshly ground black pepper¾ teaspoon table salt2 garlic cloves, minced3 tablespoons all-purpose flour1 ½ cups vegetable or chicken broth½ cup heavy cream
+Assembly1 to 1 ½ pounds green beans, trimmed and halved (see note about volume)
+Heat oven to 400 degrees F.
+Prepare the beans: Bring a large pot of salted water to boil and boil greens for 5 minutes (for standard green beans) or 2 to 3 minutes (for haricot vert, or skinny ones). Drain beans, then plunge them into ice water to full stop them from cooking. Drain again, and set aside. (If you are adamant about only using one pot, you can boil them in your 12-inch cast iron skillet that you use for the other steps. But a saucepan can be easier.) I had little room and cooked a lot of green beans, so I just steamed them in a pot. Add an inch or two to the bottom of a pot, put your beans on top, cover them, and steam until beans turn bright, lovely green (about 2-3 minutes, 5 tops).
+Make the mushroom sauce: Over medium-high heat, melt butter in the bottom of a 12-inch cast iron skillet. Add the mushrooms, salt and pepper and saute them until they start releasing their liquid, anywhere from 3 to 5 minutes, depending on how they were chopped. Add the garlic and saute one minute more. Add the flour and stir it until it fully coats the mushrooms. Add the broth, ¼ cup at a time, stirring the whole time. Simmer mixture for 1 minute, then add cream and bring back to a simmer, cooking until the sauce thickens a bit, about 5 to 6 minutes, stirring frequently.
+Assemble and bake: Add cooked greens beans to sauce and stir until they are coated. Sprinkle crispy onions over the top. Bake for 15 minutes, or until sauce is bubbling and onions are a shade darker. Eat at once.
+Do ahead, a few ways: Onions can be made long in advance (up to a day) and keep at room temperature, loosely wrapped (they’d get soggy in an airtight container). Green beans can be cooked and kept in fridge until needed, at least one day. The day before Thanksgiving, I cut the ends off my beans the day before and put them in a tupperware. I also made the mushroom sauce then stored it in its own tupperware. On Thanksgiving day, I heated up the mushroom sauce in the skillet, then added the beans, and then followed the recipe as normal. Green beans can also be combined with mushroom sauce and kept refrigerated for up to a day. Add onions and bake shortly before serving. Finally, it’s less ideal, but the entire dish can be cooked, loosely wrapped (so the crispy top doesn’t get soggy) and then rewarmed in a low oven before serving. Just keep an eye on the topping so it doesn’t get too brown while reheating.
+A few notes:
+I made a half-recipe of this dish (in a 9-inch skillet) as there are only three of us. Yours will be bigger. It was so good, we wished we had more. (I made the full size, just for me and John, and we’ve already had delish leftovers.)
+I recommend a range of quantities for the green beans; if you like your casserole to be heavier on sauce and lighter on vegetables, use the lower amount. If you’d like a more vegetable-heavy dish, light-to-moderately coated with the sauce (as mine is in the photos), use the higher amount. (We went with the higher amount and did 1 ½ lbs fresh beans)
+This makes a loooot of crispy onions. We didn’t mind. But you could probably stretch half the onion volume more thinly over your whole casserole (saving the other half for snacking/sandwiches), or you could just say, “It’s Thanksgiving. Let’s do this,” and use them all. Either way, you win.
+[Apologies, this was originally in the recipe and I’d meant to make it a footnote due to the unevenness of the results.] If you’d like to bake the onions instead of frying them, Alton Brown recommends spreading them on 1 to 2 oiled baking sheets (but I’d use parchment paper next time) and baking them at 475 (but I might try a lower temperature) for approximately 30 minutes (though I’d check it at 20 minutes), tossing them around a few times to ensure even cooking. However, I found this a little pesky — it’s much harder to get them crisp and golden and they’re prone to getting too dark before most of them are cooked. I ended up deep-frying the rest and have zero regrets. It’s Thanksgiving. Let’s do this properly.
+About the sauce thickness: Alton’s original sauce was on the thin side (2T butter for 2T flour). I thickened it when I made it so that it is a moderately thick sauce — it coats the beans (as you can see in the photos) but it does drape a little bit once baked (i.e. there will be more on the lower half of the pan than the top half when it comes out of the oven). If you’re nervous and want to make sure that your sauce is definitely very thick, you can do so by using 1 extra tablespoon butter and 1 extra tablespoon flour in the sauce — i.e. more roux makes thicker sauces. Draining your green beans well and even patting them out on towels will help ensure they don’t “liquefy” the sauce too much.
+YUM.
