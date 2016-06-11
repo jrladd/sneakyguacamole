@@ -1,8 +1,0 @@
----
-layout: post
-title: looking for a quick way to spice up boxed food in
-date: '2014-01-24T00:13:00-06:00'
-tags: []
-tumblr_url: http://sneakyguacamole.tumblr.com/post/74361852125/looking-for-a-quick-way-to-spice-up-boxed-food-in
----
-Looking for a quick way to spice up boxed food in your kitchen? In this case, I started with a box of Near East Herbed Chicken couscous. Before making the couscous, I cut up a medium carrot and onion, and sauteed them for about 5-8 minutes in a tbsp of olive oil, until the onion was translucent. Just before finishing, I added rosemary and cooked for about 1-2 more minutes til fragrant. Then I put them in a bowl and poured in the recommended amount of water to make the couscous. Once the water came to a boil, I followed the directions by adding the couscous and spice packet, but I also added my cooked vegetables. Once the couscous was cooked, I added in chopped up dried apricots, crumbled feta, and roughly chopped almonds. To finish it off, I sprinkled parsely and a little lemon juice on top. YUM!
